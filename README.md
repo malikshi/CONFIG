@@ -1,7 +1,7 @@
 
 ### GLOBALSSH CONFIG
 ### JOIN US IN FACEBOOK GROUPS https://www.facebook.com/groups/officialglobalssh/
-## DAPATKAN PASSWORDNYA DENGAN PM ADMIN BESERTA SUPPORT ADS DARI WEBSITE KAMI
+## PASSWORD : "Support Dulu Gan"
 
 ###
 > FREE PREMIUM SSH
